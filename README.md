@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mat.iravani@gmail.com**
 
-- 📄 Know about my experiences: Go to https://www.augmentthat.com/ to check out the AugmentTHAT IOS Aplication details!!
+- 📄 Know about my experiences: Go to https://www.augmentthat.com/ to check out the AugmentTHAT IOS Aplication details! Use Chat in website to request a demo.
 
 - ⚡ Fun fact **Theres allways bugs lurking around...**
 
